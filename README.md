@@ -1,1 +1,1 @@
-## Analysing beer! cause why not 
+## Analysing beer brands! cause why not 
